@@ -1,2 +1,0 @@
-# jeitodecozinha
-Jeito de Cozinha
